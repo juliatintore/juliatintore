@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @juliatintore
+- 👀 I’m interested in Real Estate, emerging technologies and sales.
+- 🌱 I’m currently learning Metaverse foundations and SaaS growth metrics.
+- 💞️ I’m looking to collaborate on international transactions and business development.
+- 📫 You can reach me on juliatintore@gmail.com
+- ⚡ Fun fact: I have lived in over 4 countries.
